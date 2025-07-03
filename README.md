@@ -1,4 +1,4 @@
-##### Hi, I'm Asif:
+##### Hi, I'm Asif!
 
 - 🎓Recent graduate 
 - :test_tube: Finishing up my studies in Political Science ! 
